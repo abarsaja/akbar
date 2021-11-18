@@ -1,0 +1,2 @@
+# akbar
+untuk bersenang senang
